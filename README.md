@@ -18,5 +18,5 @@
 
 # <i> Thanks...❤️ </i>
 ## ~By [@Psychobots](https://t.me/Psycho_Bots)
-## Supporter [Don't Forget to visit TUBOTS]
-### ~ [@Tubots](https://t.me/tubots)
+## ♦️Supporter [Don't Forget to visit TUBOTS]♦️
+## ~ [@Tubots](https://t.me/tubots)❤️
